@@ -1,6 +1,6 @@
 <h2>厂长资源官网入口，全网超清电影电视剧免费在线观看</h2>
 <p>厂长资源是一个综合性的影视资源平台，致力于为用户提供海量高清影视内容。其特色在于覆盖广泛的影视种类，包括电影、电视剧、综艺、动漫等，同时提供多种语言版本的影视资源，如国语、英文字幕等。平台支持在线播放和下载功能，用户可以根据自己的需求选择合适的观看方式。此外，厂长资源还提供个性化推荐功能，根据用户的观影习惯推荐感兴趣的内容，提升用户体验。厂长资源的影片存储一般是两类，一是自建服务器，二是国内各个互联网大厂服务器节点，所以能够很好地保证播放速度。不过存储在非自建服务器的影片可能存在部分影片失效无法播放的情况。</p>
-<p><strong>一键访问：</strong><a href="https://czzy77.github.io/" target="_blank"><strong>厂长影视最新网址</strong></a></p>
+<p><strong>一键访问：</strong><a href="https://changzhangziyuan.wwwnav.com/" target="_blank"><strong>厂长影视最新网址</strong></a></p>
 <p><strong>一键访问：</strong><a href="https://wangpanziyuan.pages.dev/" target="_blank"><strong>电子书/4K电影/无损音乐资源下载资源包</strong></a></p>
 <p><strong>一键访问：</strong><a href="http://ip.harmonylink.net/share/e82025" target="_blank"><strong>海外代理网络·可看蓝光4K影视</strong></a></p>
 <h4><strong>功能特点</strong></h4>
